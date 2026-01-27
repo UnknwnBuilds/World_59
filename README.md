@@ -31,4 +31,4 @@ This was a commission requested by K, who wanted it to be posted publically for 
 
 ## Media
 
-- **Timelapse:** [Youtube](https://youtu.be/X4IYS3f8JZU)
+- **Timelapse:** [Youtube][https://youtu.be/vV6MYxiFw74]
